@@ -5,4 +5,3 @@
 ![Picsart_22-10-23_21-46-34-715](https://user-images.githubusercontent.com/79073407/197397191-c5526957-73f9-4d71-a861-f2ada1284eb3.png)
 
 ![WIN_20221015_20_50_17_Pro](https://user-images.githubusercontent.com/79073407/197397204-32106b5c-6e48-4d36-8849-01ecd54a52e5.jpg)
-

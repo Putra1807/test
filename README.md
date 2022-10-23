@@ -2,4 +2,4 @@
 
 ![WIN_20221015_20_33_03_Pro](https://user-images.githubusercontent.com/79073407/197336400-07f27aab-9c2b-4848-9b40-b26997b6f836.jpg)
 
-![Picsart_22-10-23_21-46-34-715](https://user-images.githubusercontent.com/79073407/197395897-ffca123a-fb4e-4a47-9ecf-08ae21d42d7a.png)
+
